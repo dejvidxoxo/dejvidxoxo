@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dejvidxoxo
 - 👀 I’m interested in Cash
 - 🌱 I’m currently learning Smoking
-- 💞️ I’m looking to collaborate on Quebo
+- 💎 I’m looking to collaborate on Quebo
 - 📫 How to reach me ¿¿‽¿¿
 - 😄 Pronouns: 💎
 - ⚡ Fun fact: Going up

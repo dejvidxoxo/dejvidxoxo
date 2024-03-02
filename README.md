@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dejvidxoxo
 - 👀 I’m interested in Cash
-- 🌱 I’m currently learning Smoking
+- 🌱 I’m currently learning Changelly
 - 💎 I’m looking to collaborate on Quebo
 - 📫 How to reach me https://www.instagram.com/gemini_bracie?utm_source=qr&igsh=eWN2cmw1YmZlNmw3
 - 😄 Pronouns: 💎
